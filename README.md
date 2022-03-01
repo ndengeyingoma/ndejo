@@ -1,0 +1,2 @@
+# ndejo
+for all
